@@ -1,0 +1,1 @@
+§aConsole está Ligando!
